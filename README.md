@@ -70,7 +70,9 @@ Data Engineering · Machine Learning · AI · Data Analytics · Intelligent Syst
 
 ## 📫 Connect With Me
 
-[LinkedIn](YOUR_LINKEDIN_URL) · [GitHub](https://github.com/Shribala259)
+[LinkedIn](www.linkedin.com/in/shribala004)
+
+[GitHub](https://github.com/Shribala259)
 
 ---
 
